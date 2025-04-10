@@ -1,0 +1,1 @@
+# widget-macos-wise-eur-to-brl
